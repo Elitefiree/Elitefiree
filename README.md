@@ -1,5 +1,2 @@
-- 👋 Hi, I’m @Elitefiree A Person Who Wants To Make Games!
-- 👀 I’m interested in Video Games And Making Them
-- 🌱 I’m currently learning Codes (Like Python, C++, C, Java and some others)
-- 💞️ I’m looking to collaborate on Game Making And Website Development
-- 📫 If You Feel Helpy Contact Me On Discord Please Elitefiree#8266 NOT ON TWITTER OR OTHER SOCAL MEDIAS! 
+I am big man elite. (Not really)
+- I like cool codes and stuff. Interesting stuff people make on here
